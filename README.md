@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @TemuByam
+- 👀 I’m interested in a lot of fields.
+- 🌱 I’m currently learning a lot in school.
+- 💞️ I’m looking to collaborate on nothing at the moment.
+- 📫 How to reach me: TikTok: @mongoliantemuulen, Snapchat: @newkidtemuulen, Instagram: @temuulenthenewkid, Facebook: Temuulen Byambadorj, Twitter/X: @TemuByam, Gmail: temubyam@gmail.com, Outlook: temubyam@outlook.com, Yahoo: temubyam@yahoo.com, YouTube: @TheNonYouTuber, Discord: @TemuByam, Twitch: @TemuByam, Reddit: @temubyam, Fandom: @TemuulenB, Tumblr: @temubyam, Newgrounds: @TheNewgroundsian, DeviantArt: @TemuulenB
+- 😄 Pronouns: he/him/his
+- ⚡ Fun fact: N/A
